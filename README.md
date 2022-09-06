@@ -1,1 +1,0 @@
-คู่มือการเล่น LateDelivery
